@@ -1,2 +1,2 @@
 # Altera-oREADME.md
-up sua maravilhosa
+up sua bonita
